@@ -1,0 +1,1 @@
+# edutrip-kelas8F
